@@ -1,4 +1,4 @@
-To storage images for some products. 
+To save images for some products. 
 
 Click on [Longan-Labs.cc](Longan-Labs.cc) to get the product you need.
 
